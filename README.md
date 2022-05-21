@@ -1,2 +1,1 @@
-Geethan Sundaram
-I fell off a ski lift
+He tells to stop
